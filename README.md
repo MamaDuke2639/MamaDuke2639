@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MamaDuke2639
+- 👀 I’m interested in learning to code NFT contracts 
+- 🌱 I’m currently learning to code NFT contracts 
+- 💞️ I’m looking to collaborate on NFT contracts/projects
+- 📫 I'm available to chat via discord MamaDuke$#2639
